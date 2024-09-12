@@ -7,5 +7,5 @@
 - 🌱 I am open-minded and learn new things quickly. 
 - 💬 Ask me about anything!
 - 📫 How to reach me: @MoeeLu on Twitter
-- ⚡ Fun fact: I like photographing, hiking, running, reading, and cooking.
+- ⚡ Fun fact: like spicy food.
 
